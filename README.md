@@ -1,4 +1,4 @@
-## Hellow wonderful human beings 
+## Hello wonderful human beings 
 
 <3 
 
